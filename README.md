@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Nillman2021
-- 👀 I’m interested in ...
-- 🌱 I’m currently working in HIT, one place let me feel deeply sad.
+- 🌱 I’m currently working in HIT, one place let me feel deeply sad. But doesn't matter, let us do some great jobs.
 - 📫 Here is my e-mail: guojun.g@outlook.com
 
 <!---
